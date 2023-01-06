@@ -9,5 +9,8 @@ This tool is made for only testing purposes and if u use this unethically i do n
 
 # Contact
 Telegram : @envydude
+Telegram : @Ethan69_op
+
+# All credit goes to @EnvyDude | Phantom.
 
 
